@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bloxfruit82428
+- 👋 Hi, I’m Ash Thunderman (not my real name just my OC name)
 - 👀 I’m interested in coding, games, horror, and storyies
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on python and storys
